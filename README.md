@@ -3,7 +3,8 @@
 Hoi ik ben Noah/GreninjaAsh
 Ik hou van...
 ![pokemon](char.jpeg)
-
+ik vind charmander de leukste natuurlijk met al zijn evoluties!
+![pokie](ffgg.jpeg)
 
 
 
