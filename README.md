@@ -5,8 +5,8 @@ Ik hou van...
 ![pokemon](char.jpeg)
 ik vind charmander de leukste natuurlijk met al zijn evoluties!
 ![pokie](frokie.jpeg)
-
-
+Froakie staat op numer2
+![pok](froakie.jpeg)
 
 
 
