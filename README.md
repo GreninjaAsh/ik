@@ -2,7 +2,7 @@
 
 Hoi ik ben Noah/GreninjaAsh
 Ik hou van...
-![pokemon](pika.gif)
+![pokemon](gif.gif)
 
 
 
