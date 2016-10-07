@@ -13,7 +13,7 @@ cubone staat nummer3 alleen cubone!
 
 
 mijn favoriete liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
-en als je pokemon wil kijken![pokemon afl](https://www.youtube.com/watch?v=JT7NyQ2wawo)
+kijk de film van [pokemon opkomst van darkrai](https://www.youtube.com/watch?v=ne26-P4byXI)
 
 
 
