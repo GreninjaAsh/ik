@@ -20,7 +20,7 @@ ok genoeg over pokemon, nu over ik
 mijn favoriete [liedje](https://www.youtube.com/watch?v=xUVz4nRmxn4)
 
 ik hou ook van ![lego ninjago](hec.jpeg)
-kai is mijn [lievelings](kai.jpeg)
+kai is mijn [lievelings](kai.jpg)
 
 
 
