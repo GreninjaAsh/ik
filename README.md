@@ -5,11 +5,9 @@ Ik hou van...
 ![pokemon](char.jpeg)
 ik vind charmander de leukste natuurlijk met al zijn evoluties!
 ![pokie](frokie.jpeg)
-Froakie staat op nummer2
+Froakie staat op nummer2 met al zijn evoluties
 ![poke](froakie.jpeg)
-met al zijn evoluties
-rowlet staat op nummer3 met al zijn evoluties
-![po](based-on-final-evolution-leaks-rowlet-is-clearly-the-best-sun-moon-starter)
+
 mijn favoriete team song liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
 kijk de film van [pokemon opkomst van darkrai](https://www.youtube.com/watch?v=ne26-P4byXI)
 kijk ook seizoen1[pokemon seizoen1](https://www.youtube.com/watch?v=YwJu9sHqQ_k&list=PLV53TKZtH2Q8mjfNsBarnPicoRN8ID0tl)
