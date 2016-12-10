@@ -8,8 +8,8 @@ ik vind charmander de leukste natuurlijk met al zijn evoluties!
 Froakie staat op nummer2
 ![pok](froakie.jpeg)
 met al zijn evoluties
-cubone staat nummer3 alleen cubone!
-![po](cu.jpeg)
+rowlet staat op nummer3 met al zijn evoluties
+![po](based-on-final-evolution-leaks-rowlet-is-clearly-the-best-sun-moon-starter)
 mijn favoriete team song liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
 kijk de film van [pokemon opkomst van darkrai](https://www.youtube.com/watch?v=ne26-P4byXI)
 kijk ook seizoen1[pokemon seizoen1](https://www.youtube.com/watch?v=YwJu9sHqQ_k&list=PLV53TKZtH2Q8mjfNsBarnPicoRN8ID0tl)
@@ -17,25 +17,10 @@ als je meer pokemon wilt zien ga dan naar [pokemon.com](http://www.pokemon.com/u
 dan mee met de...[pikachu song](https://www.youtube.com/watch?v=sSMNKQl5DYo)
 ok genoeg over pokemon, nu over ik
 
-mijn favoriete [liedje](https://www.youtube.com/watch?v=xUVz4nRmxn4)
-
 ik hou ook van ![lego ninjago](hec.jpeg)
-ik hou [van eelslap](http://eelslap.com/)
 
 
-
-
-
-14 jaar later...
-
-ik ben terug en ik ben 24 jaar oud en nu hou ik van... PPPPPPPPPPPPPPPPPPOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOONNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-
-
-er is in midels een nieuwe pokemon serie gekomen hij heet sun and moon maar als je pokemon kent en kijkt en bijna alles er van weet dan weet je wel dat het echt geen 14 jaar later is
-ik heb een nieuw filmpje
-hij heet [witte rijst](https://www.youtube.com/watch?v=utH7d04e9tE)
-
-er is er nog een [tecno chicken](https://www.youtube.com/watch?v=rA9Ood3-peg)
+er is in midels een nieuwe pokemon serie gekomen hij heet sun and moon
 he over pokemon sun and moon ik laat jullie een aflevering zien [pokemon](https://www.youtube.com/watch?v=EI45Gh5q9AE)
 
 
