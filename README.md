@@ -22,7 +22,7 @@ er is in midels een nieuwe pokemon serie gekomen hij heet sun and moon
 he over pokemon sun and moon ik laat jullie een aflevering zien [pokemon](https://www.youtube.com/watch?v=EI45Gh5q9AE)
 
 
-
+einde
 
 
 
