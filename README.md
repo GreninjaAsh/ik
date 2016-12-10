@@ -3,21 +3,20 @@
 Hoi ik ben Noah/GreninjaAsh
 Ik hou van...
 ![pokemon](char.jpeg)
-ik vind charmander de leukste natuurlijk met al zijn evoluties!
+Ik vind charmander de leukste natuurlijk met al zijn evoluties!
 ![pokie](frokie.jpeg)
+
 Froakie staat op nummer2 met al zijn evoluties
 ![poke](froakie.jpeg)
 
-mijn favoriete team song liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
-als je meer pokemon wilt zien ga dan naar [pokemon.com](http://www.pokemon.com/us/pokemon-episodes/)
-dan mee met de...[pikachu song](https://www.youtube.com/watch?v=sSMNKQl5DYo)
-ok genoeg over pokemon, nu over ik
+Mijn favoriete team song liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
+Als je meer pokemon wilt zien ga dan naar [pokemon.com](http://www.pokemon.com/us/pokemon-episodes/)
 
-ik hou ook van ![lego ninjago](hec.jpeg)
+Ik hou ook van ![lego ninjago](hec.jpeg)
 
 
-er is in midels een nieuwe pokemon serie gekomen hij heet sun and moon
-he over pokemon sun and moon ik laat jullie een aflevering zien [pokemon](https://www.youtube.com/watch?v=EI45Gh5q9AE)
+Er is inmiddels een nieuwe pokemon serie gekomen hij heet sun and moon
+Hé over Pokemon sun and moon ik laat jullie een aflevering zien [pokemon](https://www.youtube.com/watch?v=EI45Gh5q9AE)
 
 
 einde
