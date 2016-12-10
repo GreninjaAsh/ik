@@ -6,7 +6,7 @@ Ik hou van...
 ik vind charmander de leukste natuurlijk met al zijn evoluties!
 ![pokie](frokie.jpeg)
 Froakie staat op nummer2
-![pok](froakie.jpeg)
+![poke](froakie.jpeg)
 met al zijn evoluties
 rowlet staat op nummer3 met al zijn evoluties
 ![po](based-on-final-evolution-leaks-rowlet-is-clearly-the-best-sun-moon-starter)
