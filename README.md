@@ -12,7 +12,7 @@ Froakie staat op nummer2 met al zijn evoluties
 Mijn favoriete team song liedje [pokemon](https://www.youtube.com/watch?v=CQuObfTx6Cg)
 Als je meer pokemon wilt zien ga dan naar [pokemon.com](http://www.pokemon.com/us/pokemon-episodes/)
 
-Ik hou ook van ROBLOX
+Ik hou ook van ![ROBLOX](https://robloxgamerscommunity.files.wordpress.com/2016/06/roblox-game-persuader-official-logo-1.png?w=940)
 ik doe het bijn elke dag ohh elke dag
 
 
